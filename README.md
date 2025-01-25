@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **sabaleprashik7@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/home](https://drive.google.com/drive/u/0/home)
+- 📄 Know about my experiences [Resume Link ](https://drive.google.com/file/d/13vkjS07UxfTnTlkTZUNmTpm-eDOgI-pE/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
